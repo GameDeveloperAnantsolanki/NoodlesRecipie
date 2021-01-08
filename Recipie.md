@@ -1,0 +1,1 @@
+cook oil,put noodles,soy sauce,all told veggies.
